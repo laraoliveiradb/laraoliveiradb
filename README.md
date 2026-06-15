@@ -1,4 +1,4 @@
-# Lara 🌷
+# Lara Oliveira
 
 💻 Estudante de programação
 
